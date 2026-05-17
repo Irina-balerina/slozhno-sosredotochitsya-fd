@@ -1,1 +1,1 @@
-https://github.com/Irina-balerina/slozhno-sosredotochitsya-fd#
+https://github.com/Irina-balerina/slozhno-sosredotochitsya-fd
